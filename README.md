@@ -343,7 +343,7 @@ This project is licensed under the MIT License — see the [LICENSE](LICENSE) fi
 
 **Vijay Kumar**
 - GitHub: [@VijayKumaro7](https://github.com/VijayKumaro7)
-- LinkedIn: [linkedin.com/in/vijaykumar](https://linkedin.com/in/vijaykumar)
+- LinkedIn: [linkedin.com/in/vijaykumar](https://www.linkedin.com/in/vijay-kumar070/)
 
 ---
 
